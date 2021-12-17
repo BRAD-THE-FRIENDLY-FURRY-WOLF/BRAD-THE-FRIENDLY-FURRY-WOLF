@@ -9,3 +9,5 @@ Hi, I’m @BRAD-THE-FRIENDLY-FURRY-WOLF! (｡^ꈊ^)ﾉﾞ
 - I like to make custum FNF sprite assets for peaple
 
 - im male { so ar all my 3{ might be 5 ) fursonas { if a mini fur-mate counts )
+
+Im currently working on making a website.
